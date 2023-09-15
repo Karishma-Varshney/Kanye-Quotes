@@ -1,2 +1,2 @@
 # Kanye-Quotes
-Here you find your daily dose of quotes...
+
